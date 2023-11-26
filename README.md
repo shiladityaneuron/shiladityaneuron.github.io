@@ -5,5 +5,5 @@
 ##### Heading 5
 ###### Heading 6
 
-![Sample Image]([URL](https://ibb.co/XxcyGhZ)https://ibb.co/XxcyGhZ)
+![Sample Image](https://ibb.co/XxcyGhZ)
 
