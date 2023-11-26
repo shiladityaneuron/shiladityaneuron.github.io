@@ -17,6 +17,7 @@ I possess a wandering mind, encountering various books each month. On occasion, 
 This month, I am reading Morning and Evening (Just 112 Pages!) by Jon Fosse. (Nobel Prize Winner in literature section, 2023). This is my first encounter with a piece of Norwegian literature. It is translated in English by Damien Searls.
 
 ![Jon Olav Fosse](https://upload.wikimedia.org/wikipedia/commons/3/31/Writer_Jon_Fosse_%28cropped%29.jpg)
+
 **Jon Olav Fosse**
 
 
