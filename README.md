@@ -18,7 +18,7 @@ This month, I am reading Morning and Evening (Just 112 Pages!) by Jon Fosse. (No
 
 ![Jon Olav Fosse](https://upload.wikimedia.org/wikipedia/commons/3/31/Writer_Jon_Fosse_%28cropped%29.jpg)
 
-**Jon Olav Fosse**
+                                            **Jon Olav Fosse**
 
 
 
