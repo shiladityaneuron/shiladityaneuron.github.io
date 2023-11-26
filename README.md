@@ -1,9 +1,6 @@
-# Heading 1
-## Heading 2
-### Heading 3
-#### Heading 4
-##### Heading 5
-###### Heading 6
+# About 
+*My name is Shiladitya Laskar. I post random stuff here.*
+
 
 
 
