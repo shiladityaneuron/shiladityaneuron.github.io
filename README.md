@@ -29,5 +29,5 @@ A rainy day here in Haifa. Finding strength to focus.
 
 *Bartolomé Esteban Murillo, Saint Peter in Tears, 1650–1655, Wikipedia*
 
-**New Phrase Alert:**
+**New Phrase Alert**:
 The expression "quite at his wits" refers to someone who is extremely confused, distressed, or mentally troubled. 
