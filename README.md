@@ -20,5 +20,5 @@ This month, I am reading Morning and Evening (Just 112 Pages!) by Jon Fosse. (No
 
                                             **Jon Olav Fosse**
 
-## 26th November 2023
+## 27th November 2023
 A rainy day here in Haifa. 
