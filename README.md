@@ -24,4 +24,6 @@ This month, I am reading Morning and Evening (Just 112 Pages!) by Jon Fosse. (No
 A rainy day here in Haifa. Finding strength to focus.
 
 ![Jon Olav Fosse](https://photos.app.goo.gl/1sgZFpPVM9uamMo16)
+
+
 *Bartolomé Esteban Murillo, Saint Peter in Tears, 1650–1655, Wikipedia*
